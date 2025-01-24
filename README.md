@@ -5,12 +5,11 @@ Im a huge fan of Squidgame, All of us are dead, alice in borderland, Sonic, Haik
 im also.. a huge music nerd DO IF U R INTO MUSIC TOO PLEASE TALK TO ME!
 I love drawing (mostly digital art), singing and baking :3 
 PLEASE INT WITH MW OMG..
-but please dni if u r under the age of 16. Im not comfy tslking to ppl who r EXTREMLY younger than me. Also if u r a hater against stuff lild lgbtq,
-if u r racist, a creep, against furries or whatever DNI TOO.
+but please dni if u r under the age of 16. Im not comfy talking to ppl who r EXTREMLY younger than me. Also if u r a hater against stuff like lgbtq, if u r racist, a creep, against furries or whatever DNI TOO. i no no want bullies to int with me
 
 
 ANYWAYYYYY! thats it i think... PLEASEEEEEE INTTTTT
-also if u wanr my socials just ask BUT ONLY IF WE HAD SOME SORT OF INT FIRST TYSM!
+also if u want my socials just ask BUT ONLY IF WE HAD SOME SORT OF INT FIRST TYSM!
 
 anyway i hope u have a great day :3 
 zip zup! 👽
