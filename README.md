@@ -1,11 +1,12 @@
 Zip zup zap 👽💥
 
 hii! im hunter and im looking for FRIENDS! if u r looking for friends too...IM HERE MAN!:3 
-Im a huge fan of Squidgame, All of us are dead, alice in borderland, Sonic, Haikyu, Good Omens, !arbel, Mouthwashing AND MORE!
+Im a huge fan of Squidgame, All of us are dead, alice in borderland, Sonic, Haikyu, Good Omens, Mouthwashing AND MORE
 im also.. a huge music nerd DO IF U R INTO MUSIC TOO PLEASE TALK TO ME!
+i listen to very much everything..SOME of my fav artists/groups r: Bts, stray kids, enhypen, Xdh, p1harmony, ateez, boynextdoor, txt, zb1 BUT ALSO system of a down, korn, limp bizkit, icp, bmth and more 
 I love drawing (mostly digital art), singing and baking :3 
 PLEASE INT WITH MW OMG..
-but please dni if u r under the age of 16. Im not comfy talking to ppl who r EXTREMLY younger than me. Also if u r a hater against stuff like lgbtq, if u r racist, a creep, against furries or whatever DNI TOO. i no no want bullies to int with me
+but please dni if u r like... 13..........Im not comfy talking to ppl who r EXTREMLY younger than me. Also if u r a hater against stuff like lgbtq, if u r racist, a creep, against furries or whatever DNI TOO. i no no want bullies to int with me
 
 
 ANYWAYYYYY! thats it i think... PLEASEEEEEE INTTTTT
