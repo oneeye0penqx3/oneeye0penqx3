@@ -1,4 +1,5 @@
-Zip zup zap 👽💥
+Zip zup zap 👽💥![image](https://github.com/user-attachments/assets/e4ca037a-98bb-4e1e-9b0a-7ebb17b5b221)
+
 
 hii! im hunter and im looking for FRIENDS! if u r looking for friends too...IM HERE MAN!:3 
 Im a huge fan of Squidgame, All of us are dead, alice in borderland, Sonic, Haikyu, Good Omens, Mouthwashing AND MORE
